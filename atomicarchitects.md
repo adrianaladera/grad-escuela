@@ -1,6 +1,8 @@
 # Fall 2022
 ### ???
 - when Song made spherical cows into the official mascot of the lab and during picture day we each posed with a $0 \leq l \leq 2$ cow
+### October
+- dressing up as a deviled egg three days in a row for Halloween; on Friday making friends with a random girl and going bar hopping with her and then crashing back at ASS-DOWN with Ameya's friend group
 
 ### November
 - whoever started the tradition of smacking the helmet on the way to/from church dinner
