@@ -2,6 +2,7 @@
 ### ???
 - when Song made spherical cows into the official mascot of the lab and during picture day we each posed with a $0 \leq l \leq 2$ cow
 - when YuQing tried to knock down the pins of the gold bowling set using the brain stress ball and missing hitting any of them completely
+- whoever started the tradition of coffeeing someone's desk when they're not in the lab
 ### October
 - dressing up as a deviled egg three days in a row for Halloween; on Friday making friends with a random girl and going bar hopping with her and then crashing back at ASS-DOWN with Ameya's friend group
 
@@ -14,3 +15,4 @@
 - pathologically lying and telling random MechE grad students at our table that Ameya participated in an eating contest over the weekend after he said that he "ate too much fried chicken" when he was really just there for NIPS
 - on the way home from church dinner and prayer, I took a small potato from the free foods rack, and then when leaving the boba Pokerbots presentation I put it in YuQing's side pocket of his backpack and neither him or Song noticed until they were already almost back at their dorms
 - throwing a fluff that was supposed to be the "bunny" for "Tess" (Bosco) at Ameya and it accidentally landing perfectly into his Huel cup (it was almost empty tho no food wasted)
+- making said potato into a lab pet and giving it googley eyes and then passing it around like we do coffee
