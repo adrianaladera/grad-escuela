@@ -15,4 +15,4 @@
 - pathologically lying and telling random MechE grad students at our table that Ameya participated in an eating contest over the weekend after he said that he "ate too much fried chicken" when he was really just there for NIPS
 - on the way home from church dinner and prayer, I took a small potato from the free foods rack, and then when leaving the boba Pokerbots presentation I put it in YuQing's side pocket of his backpack and neither him or Song noticed until they were already almost back at their dorms
 - throwing a fluff that was supposed to be the "bunny" for "Tess" (Bosco) at Ameya and it accidentally landing perfectly into his Huel cup (it was almost empty tho no food wasted)
-- making said potato into a lab pet and giving it googley eyes and then passing it around like we do coffee
+- making said potato into a lab pet and giving it googley eyes and then passing it around like we do with coffee
