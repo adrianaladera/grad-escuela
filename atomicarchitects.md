@@ -16,3 +16,7 @@
 - on the way home from church dinner and prayer, I took a small potato from the free foods rack, and then when leaving the boba Pokerbots presentation I put it in YuQing's side pocket of his backpack and neither him or Song noticed until they were already almost back at their dorms
 - throwing a fluff that was supposed to be the "bunny" for "Tess" (Bosco) at Ameya and it accidentally landing perfectly into his Huel cup (it was almost empty tho no food wasted)
 - making said potato into a lab pet and giving it googley eyes and then passing it around like we do with coffee
+
+# Spring 2023
+### January
+- lightly brushing the helmet on the way to La Verde's with Song and the blue shell design cover coming right off
